@@ -1,1 +1,1 @@
-"Sharanya ko secrents open karunga" 
+"Emi ra balaraju emi ra ne valla deshaniki upayogam" 
